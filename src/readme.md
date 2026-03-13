@@ -1,2 +1,1 @@
-soy Hola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpincho
-Hola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpincho
+hola mundo estoy aprendiendo a como usar las branch o mejor deicho las ramas dsdsdsd
