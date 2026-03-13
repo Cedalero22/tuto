@@ -1,2 +1,1 @@
-soy Hola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpincho
-Hola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpincho
+Hola soy un Carpincho
