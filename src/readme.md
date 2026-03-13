@@ -1,2 +1,1 @@
-soy Hola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpincho
-Hola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpinchoHola mundo soy un carpincho
+mas Dios muestra su amor para cin nosotros en que siendo aun pecadores Cristo murio por nosotros
